@@ -1,4 +1,4 @@
-[![MasterHead](https://www.chetu.com/img/blogs/game-development-trends/game-development-trends-banner.jpg)](https://rishavchanda.io)
+[![MasterHead](https://i.imgur.com/OE3QUqv.gif)](https://rishavchanda.io)
 
 
 
